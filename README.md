@@ -7,6 +7,7 @@
 - allien recusing team be we can use Penrose Process to extra some energy out....(if it doesnt work at this we can get some work done)
 - or we are the one recusing them so either way 
 - what are human brains? 1A operates LHC
+- or we are the allienate angles that are suppsoe to drops seeds...
 
 GG
 
