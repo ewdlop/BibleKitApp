@@ -12,6 +12,10 @@ GG
 
 https://en.wikipedia.org/wiki/Conformastatic_spacetimes
 
+### what is the beyond?
+
+some mathemical object
+
 # To bunch of friends in a distance future:
 
 “千里共嬋娟”出自宋代苏轼的词作《水调歌头·明月几时有》。这句词的意思是：只希望自己思念的人平安长久，不管相隔千山万水，都可以一起看到明月皎洁美好的样子。 这句话常用于表达对远方亲人朋友的思念之情以及美好祝愿。
